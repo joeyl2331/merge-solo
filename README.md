@@ -2,5 +2,5 @@
 My
 Favorite
 Cartoon
-Is 
-Tom and Jerry 
+Is
+Scooby Doo
