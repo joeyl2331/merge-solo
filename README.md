@@ -1,6 +1,6 @@
 # merge-solo
-I don't like
-this
+This
+Awesome
 Cartoon
 Is
 Scooby Doo
